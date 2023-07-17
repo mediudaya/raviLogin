@@ -13,3 +13,5 @@ cnxz nx nz
 n sn
 nf vsdn vnsndbvs
 vsdnv sdns 
+bffya
+bsbc bcb cbx cx zhhg 
